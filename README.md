@@ -1,5 +1,11 @@
-<img width="1200" height="1200" alt="Untitled806_20260904030455" src="https://github.com/user-attachments/assets/255546d3-6a8e-4b93-b30e-8962a395801c" />
+<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/a3e05fef-928d-4f7d-9c88-f507c9eebba8" />
 
-this readme shi is so hard … <img width="20" height="20" alt="IMG_7593" src="https://github.com/user-attachments/assets/b11e19cb-b1e8-4dfb-b359-9f589701e4fe" />  someone pls help.. <img width="20" height="20" alt="IMG_7594" src="https://github.com/user-attachments/assets/817d1ad0-5d59-447b-b0de-6b9f4a5d72fc" />
+“  𝚛-𝚛-𝚛𝚎𝚋𝚎𝚌𝚌𝚊….  “    “  𝚒  𝚝𝚑𝚒𝚗𝚔 ,  𝚒𝚖  𝚊..𝚕𝚒𝚝𝚝𝚕𝚎  𝚋𝚒𝚝..  “    “  𝚘  𝚋  𝚜  𝚎  𝚜  𝚜  𝚎  𝚍  “ / 𝚕𝚢𝚛𝚒𝚌 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/7dcf6eb0-1ca0-484f-adc5-c9076c11576d" />
 
+
+
+<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/95585f3c-7a3b-4ea3-a6b3-5bfde8a5f35d" />
+
+
+<img width="75" height="74" alt="image" src="https://github.com/user-attachments/assets/468c2da9-176c-4af4-b8a1-af060c555f16" />  ɪ ʜᴀᴠᴇ ɴᴏ ɪᴅᴇᴀ ᴏɴ ʜᴏᴡ ᴛᴏ ᴍᴀᴋᴇ ᴛʜɪꜱ ᴘʀᴇᴛᴛʏ … <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ea2f4df4-5562-40b6-822d-6a4cedd0af20" />
 
